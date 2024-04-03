@@ -1,0 +1,1 @@
+# IoT-Karantina-Hasta-Takip-Sistemi
